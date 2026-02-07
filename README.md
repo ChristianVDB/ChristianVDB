@@ -36,11 +36,4 @@ I'm an avid **coin collector** 🪙 and have a **thirst for knowledge** - I ofte
 
 ---
 
-## 📫 Let's Connect
-
-- [LinkedIn](https://www.linkedin.com/in/christian-vd-brink-451b47312?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BMRVMDOlbRLCJqf%2Fu93yDTQ%3D%3D)
-- [Email](604510@student.belgiumcampus.ac.za)
-
----
-
 Thanks for stopping by! 🚀
